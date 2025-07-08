@@ -10,4 +10,4 @@
 
 本页面主打欧美黑粗类视频资源，搭配中文字幕与多种题材，深受用户喜爱。每日更新内容，涵盖激情、重口、剧情等多类型，满足不同观影偏好。平台视频加载迅速、无需等待，支持无广告在线播放，是追求极致体验用户的理想选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/songsot20250708/songsot12 ）</span>
